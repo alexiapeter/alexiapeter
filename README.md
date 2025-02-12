@@ -14,7 +14,9 @@ Awards diplomas:
 [Diploma Peter Alexia.pdf](https://github.com/user-attachments/files/18763605/Diploma.Peter.Alexia.pdf)
 
  Delphi - Contest based on psychological themes
-[Proiect delphi.pptx](https://github.com/user-attachments/files/18763627/Proiect.delphi.pptx)
+ [Delphi Ro-echipa Ambasadori   zambetului .pdf](https://github.com/user-attachments/files/18773632/Delphi.Ro-echipa.Ambasadori.zambetului.pdf)
+
+ 
 
 GNRS - Arigatou International - Volunteering Project
 [certificate-Alexia.pdf](https://github.com/user-attachments/files/18763701/certificate-Alexia.pdf)
