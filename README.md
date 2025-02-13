@@ -21,6 +21,10 @@ Awards diplomas:
 GNRS - Arigatou International - Volunteering Project
 [certificate-Alexia.pdf](https://github.com/user-attachments/files/18763701/certificate-Alexia.pdf)
 
+Voluntariat SNAC, 2018-2022 
+
+[DIPLOMA_SNAC_PeterAlexia.pdf](https://github.com/user-attachments/files/18780121/DIPLOMA_SNAC_PeterAlexia.pdf)
+
 
 
 
